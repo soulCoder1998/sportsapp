@@ -34,6 +34,6 @@
 加QQ 2579692606
 
 # 项目演示
-https://www.bilibili.com/video/BV1qo4y1k7eC?from=search&seid=13973083840610949016
+https://www.bilibili.com/video/BV1qo4y1k7eC
 
 
